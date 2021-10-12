@@ -1,1 +1,1 @@
-okasi pann
+okasi pann sakana
