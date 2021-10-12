@@ -1,1 +1,1 @@
-okasi 
+okasi pann
